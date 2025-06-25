@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl443.pages.dev/">今日黑料</a>
 
-点击访问：<a href="https://hl417.pages.dev/">黑料社独家爆料/a>
+点击访问：<a href="https://hl417.pages.dev/">黑料社独家爆料</a>
 
 点击访问：<a href="https://hl410.pages.dev/">黑料社 今日黑料首页</a>
 
@@ -63,4 +63,4 @@ Telegram频道传送门：分类汇聚Telegram热门频道，涵盖多元主题�
 
 那些年轰动全网的大瓜全收录了！从爆料到反转，《黑料大事记》用清晰时间线带你一键回顾每次圈内风波。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/eee20250625/eee3）</span>
